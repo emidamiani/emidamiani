@@ -1,3 +1,3 @@
-  my name is Emiliane
+  my name is emiliane, I don't know what write (helpp)
   
-  ![image](https://github.com/emidamiani/emidamiani/assets/160952497/9c51ccab-95ae-42f1-bdc1-f708231e998a)
+ ![image](https://github.com/emidamiani/emidamiani/assets/160952497/fefec857-f7c7-46f5-bb38-0cd4db73ac54)
